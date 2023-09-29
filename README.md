@@ -1,2 +1,46 @@
 # Twin-Overview
-Twin-Overview of XUEYUNGE &amp; SHUANGTAN City
+
+Twin Overview is a larger world ouside the two world of Sherry and Amika.
+
+It will enclose more mysterious things of the world.
+
+Copyright（C） 2017-2023 Shirley Amika
+
+Do Not Reprint
+
+## 双生世界概览
+
+双生世界是雪祈与艾米卡原本的躯体所在两个世界之间的夹缝所形成的特殊世界，也即雪云阁和霜昙城之外更大的世界。
+
+这里将会揭露这个世界更为神秘的东西……
+
+## 01 SHUANGTAN CITY 霜昙城
+
+霜昙城是艾米卡小姐的内心所处在的世界，位于双生世界的外轴。
+
+## 02 XUEYUNGE 雪云阁
+
+
+```
+行春月望湖中星，停云初霁驻越堤。
+
+此间寻觅未知处，江南雨雪梦浮生。
+
+              ————雪云阁场景诗
+```
+
+**霰雨宫**（即霰雨宫雪云阁，对外常称为雪云阁）是雪祈的故事世界，位于双生世界的内轴。
+  
+人物通过羁绊与牵绊进入世界，时间上与雪祈Amika共用部分计时方法。
+  
+霰雨宫以“忧思之魂”为中介能源，呼唤使役为主要劳动力。
+  
+建筑群基于江南东道的苏州石湖，分为几大建筑群。
+  
+其定位为“与现实紧密联系”的世界观，有分阁与现实世界相联系。
+
+雪云阁与**星塔**（又称玄星塔）是盟友关系，雪云阁阁主覃雪祈与星塔第二任塔主**璃桥流年**（Annue Louiston）是**最坚定的盟友兼挚友**。
+
+## 03 万晴轴
+
+万晴轴（暂名）是双生世界运转的中轴，对于霜昙城与雪云阁类似恒星与行星的关系，有着自己的自然法则。
